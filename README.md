@@ -5,5 +5,5 @@
 - Pronouns: 𝐒𝐇𝐄┃𝐇𝐄𝐑 ⋆
 - ˚꩜｡ Jump into this tecnology world, always learn more and more... ⋆˚꩜｡
 
-- Thanks for visiting!
+ Thanks for visiting!
 <!--
